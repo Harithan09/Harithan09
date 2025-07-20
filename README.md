@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **harithanakka09@gmail.com**
   
-- 📄 Know More about Me [https://drive.google.com/file/d/1I6JmC-qZ6sPeQhXrxHxUpcEpG3jvFRr6/view?usp=sharing](https://drive.google.com/file/d/1I6JmC-qZ6sPeQhXrxHxUpcEpG3jvFRr6/view?usp=sharing)
+- 📄 Know More about Me(https://drive.google.com/file/d/1RS-RR-IUwIR6mji7IRCI0h3F8Z2EGwKM/view?usp=sharing)
   
    <p align="right"> <img src="https://cdn.dribbble.com/userupload/30832962/file/original-199091f9b19f067153ecd518321a3898.gif" alt="harithan09" height="250" width="250"  /> </p>
 - ⚡ Fun fact **Pushing code...Hoping for the Best!**
